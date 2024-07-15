@@ -1,1 +1,1 @@
-# personal-utilities
+How To Do: The Thing edition. A helpful guide to doingsmanship. The latest entry in the venerated if misunderstood How To Do series of webolos (Web Book Logs). For more information on the Webelos concept, please see Norton's Unhelpful Guide to Unwieldy Contrivances—a tome which lives up to its namesake insofar as it does not currently, and nor will it ever (if the author has anything to say about it), per se, exist.
